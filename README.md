@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects, coding challenges, and anything related to software development!
 
-📫 How to reach me: Email: rodas1414@domain.com | LinkedIn: https://www.linkedin.com/feed/
+📫 How to reach me: Email: rodastesfay14@gmail.com | LinkedIn: https://www.linkedin.com/feed/
 
 😄 Pronouns: She/Her
 
